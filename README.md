@@ -1,1 +1,1 @@
-# Dolinskiy_Aleksey_Uryevich
+# Dolinskiy_Aleksey
